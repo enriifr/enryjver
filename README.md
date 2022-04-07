@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @enryjver
 - 👀 I’m interested in coding and stuff
-- 🌱 I’m currently learning C, JavaScript
+- 🌱 I’m currently learning Python
 - 📫 How to reach me 
 Discord: enryjver#5500
 
