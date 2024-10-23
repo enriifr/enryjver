@@ -1,2 +1,2 @@
-# 👋 I'm enryjver.  
-that's it. if you wanna know more check out my insta: @enrii.fr
+# 👋 i'm enri.  
+that's it. if you wanna know more about me check out my instagram: @enrii.fr
