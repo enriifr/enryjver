@@ -1,2 +1,4 @@
 # 👋 i'm enri.  
-that's it. if you wanna know more about me check out my instagram: @enrii.fr
+-17
+-based in Ravenna
+-student @ ITIS N.BALDINI
